@@ -1,4 +1,4 @@
-# 
+# Experience pls donate like never before with top Scripts for pls donate, the #1 Script. Includes undetectable and auto-upgrade for unbeatable
 
 
 
